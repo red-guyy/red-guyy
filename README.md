@@ -1,3 +1,3 @@
 euhggf.. wip...
 
-![ugly](https://files.catbox.moe/m19x99.gif)
+![ugly](https://files.catbox.moe/thodxh.gif)
